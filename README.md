@@ -12,6 +12,6 @@
 
 ## Feito por:
 
-### Joana Santos
+### Tatiane Chaves
 
 ### Linkedin: https://www.linkedin.com/in/tatiane-chaves-15ab21161/
